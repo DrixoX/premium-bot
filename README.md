@@ -8,4 +8,4 @@ Need Help or bug report? here the Support Server: https://dsc.gg/drixo
 
 Bot invite: https://dsc.gg/kanna6
 
-# No new command please wait
+# new command comming Soon WAIT...
